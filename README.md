@@ -1,2 +1,2 @@
 # futtips.bet
-melhor casa de apostas do brasil
+estastitcas e palpites de futbol!
